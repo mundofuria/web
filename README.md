@@ -1,2 +1,2 @@
-<b>MUNDOFURIA</b><br>
+<b>MUNDOFURIA®</b><br>
 <small>mundofuria.com</small>
